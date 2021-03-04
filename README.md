@@ -1,4 +1,4 @@
-# Mathmaticla Writing in English | 数学之英文写作
+# Mathematical Writing in English | 数学之英文写作
 
 **作者: 汤涛 丁玖**
 
